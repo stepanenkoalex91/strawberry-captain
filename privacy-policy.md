@@ -1,4 +1,4 @@
-# Privacy Policy for the “Strawberry Captain” App / Політика конфіденційності застосунку “Strawberry Captain”
+# Privacy Policy for the “Captain Strawberry” App / Політика конфіденційності застосунку “Captain Strawberry”
 
 ## English Version 🇬🇧
 

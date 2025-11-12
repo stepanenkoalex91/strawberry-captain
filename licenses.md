@@ -1,4 +1,4 @@
-# 📜 Open Source Licenses for Strawberry Captain
+# 📜 Open Source Licenses for Captain Strawberry
 
 **Generated on:** October 17, 2025
 
