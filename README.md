@@ -1,1 +1,1 @@
-# captain-strawberry
+# captain-strawberry 1.2
